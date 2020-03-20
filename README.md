@@ -1,0 +1,1 @@
+Até o momento tenho explorado assuntos de grande interesse e que tem me feito questionar assuntos que até então passavam-se despercebidos mas que são de grande importância, talvez o motivo maior da minha insatisfação que me ronda no trabalho, seja na verdade um problema interno.
